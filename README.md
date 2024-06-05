@@ -1,6 +1,6 @@
-- oii,meu nome é gabi
-  eu gosto de filmes de 
-- 🌱 I’m currently learning ...
+- meu nome é gabi
+  eu gosto de de assistir filmes (principalmente de terror);alem de desenhar e escutar musica
+- 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - 😄 ela
